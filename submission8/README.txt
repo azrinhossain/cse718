@@ -15,14 +15,10 @@ https://rha.ole.redhat.com/rha/app/summary
 
 completed youtube video:
 https://www.youtube.com/watch?v=EmYVZuczJ6k
+https://www.youtube.com/watch?v=1IPOIE0PvQY
+https://www.youtube.com/watch?v=NC-4lTXFfqE&list=PL24010632B8286DBC
 
-completed book and created concept map PDF along with video presentation:
-http://book
 
-did project:
-.....
-
-did something else
 ...
 
 was active in slack:
